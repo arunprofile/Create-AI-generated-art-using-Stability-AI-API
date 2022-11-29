@@ -1,0 +1,1 @@
+# Creating ,Designing and implementing solutions using collective intelligence and augmented technology
